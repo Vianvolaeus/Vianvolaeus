@@ -12,7 +12,7 @@
 
 **¦ ASK ABOUT** digital identity, transhumanism, metaversal branding & character design
 
-**¦ CONNECT WITH ME** via [vianvolae.us](vianvolae.us)
+**¦ CONNECT WITH ME** via [vianvolae.us](http://www.vianvolae.us)
 
 **¦ PRONOUNS ARE** whatever you see fit, N/A
 
