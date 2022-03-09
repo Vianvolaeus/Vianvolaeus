@@ -2,7 +2,7 @@
 
 ### ¦ I AM VIANVOLAEUS, a 3D character artist and generalist.
 
-**¦ CURRENTLY WORKING ON** the future of metaverse and the web [@webaverse](https://github.com/webaverse)
+**¦ CURRENTLY WORKING ON** character and digital identity based projects, interoperable solutions for objects and avatars
 
 **¦ LEARNING HOW TO** break Blender and various 3D apps to bring unique characters into the world
 
