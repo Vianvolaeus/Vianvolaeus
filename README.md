@@ -1,2 +1,3 @@
 ### ¦¦¦ digital ANDROID
-## [vianvolae.us](vianvolae.us) ![gh_banner](https://github.com/user-attachments/assets/447e8259-cbb4-48dc-94c6-539127f193e4)
+## [vianvolae.us](vianvolae.us)
+<img align="left" width="512" src="./content/vv_shine.gif" alt="vv_shine"  />
